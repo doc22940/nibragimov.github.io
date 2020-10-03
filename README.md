@@ -1,1 +1,0 @@
-# nibragimov.github.io
